@@ -10,7 +10,7 @@
 
 ## ICED TOASTED VANILLA SHAKEN COFFEE WITH OATMILK Ingredients
 
-- 6 oz Vanilla Flavored Coffee
+- 6 oz Vanilla Flavored Syrup
 - 2 oz Toasted Vanilla Syrup (recipe below)
 - 1 1/2 cup ice
 - 1/2 cup unsweetened oatmilk
