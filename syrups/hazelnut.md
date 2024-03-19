@@ -33,3 +33,7 @@
 ### Step 6
 
 - Store syrup in an airtight container for up to two weeks.
+
+### Step 7
+
+- Eat chilled
