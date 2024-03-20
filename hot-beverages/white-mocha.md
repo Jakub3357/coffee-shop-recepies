@@ -33,4 +33,4 @@
 
 ### Step 6
 
-- Top with whipped cream.
+- I have change this as our part of learning.
