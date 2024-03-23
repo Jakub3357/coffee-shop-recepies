@@ -31,3 +31,7 @@
 ### Step 5
 
 - Top with caramel sauce.
+
+### Step 6
+
+- Add more sugar
