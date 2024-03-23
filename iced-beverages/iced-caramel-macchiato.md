@@ -14,7 +14,7 @@
 
 ### Step 1
 
-- Place vanilla syrup in a glass.
+- Place caramel syrup in a glass.
 
 ### Step 2
 
