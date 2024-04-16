@@ -35,3 +35,8 @@
 ### Step 6
 
 - Add more sugar
+
+### Step 7
+
+- Add more Vanilla
+
