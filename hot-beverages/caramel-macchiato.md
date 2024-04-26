@@ -50,4 +50,4 @@
 
 ### Step 5
 
-- enjoy with croissant
+- enjoy with chocolate croissant
