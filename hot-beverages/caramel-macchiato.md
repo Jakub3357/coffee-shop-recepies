@@ -47,3 +47,7 @@
 ### Step 4
 
 - Drizzle caramel sauce on top. Enjoy!
+
+### Step 5
+
+- enjoy with croissant

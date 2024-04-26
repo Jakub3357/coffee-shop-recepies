@@ -34,3 +34,7 @@
 ### Step 6
 
 - add more sugar
+
+### Step 7
+
+- enjoy with croissant
