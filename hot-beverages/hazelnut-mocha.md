@@ -26,4 +26,4 @@
 
 ### Step 4
 
-- enjoy with croissant
+- enjoy with chocolate croissant
